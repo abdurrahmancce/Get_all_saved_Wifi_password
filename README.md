@@ -258,9 +258,9 @@ Python Developer • Cybersecurity Enthusiast • Open Source Learner
 
 ### Connect With Me
 
-- GitHub: https://github.com/your-username
-- LinkedIn: https://linkedin.com/in/your-profile
-- Email: your-email@example.com
+- GitHub: https://github.com/abdurrahmancce
+- LinkedIn: https://www.linkedin.com/in/abdur-rahman-akash-60450b2aa
+- Email: akash.abdur.2002@gmail.com
 
 ---
 
